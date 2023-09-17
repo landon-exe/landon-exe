@@ -1,3 +1,5 @@
+https://discord.gg/AeHuwD8wUd
+
 - 👋 Hi, I’m @landon-exe
 - 🌱 I’m currently learning ... JavaScript
 - 📫 How to reach me ... Discord: landon.exe
